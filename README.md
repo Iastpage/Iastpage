@@ -1,6 +1,6 @@
 <div align="center">
 
-![e](https://i.postimg.cc/rwHrFPrm/xcvsxxc.png)
+![](https://i.postimg.cc/rwHrFPrm/xcvsxxc.png)
 
 dni under 18, i dont engage in discourse 
 
